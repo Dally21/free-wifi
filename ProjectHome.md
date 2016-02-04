@@ -1,0 +1,1 @@
+Some people cantón get WiFi because they dont hace good crédito por justo can afford to pay the Bill every month this project its  going to help other people that don hace WiFi enjoy the FREE WiFi that they cantón affourd si this project bits mainly helping other people in need.
